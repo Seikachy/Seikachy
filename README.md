@@ -7,4 +7,4 @@
 - 💬 Ask me about my life
 - 📫 How to reach me: @kzrxxt
 - 😄 Pronouns: he
-- ⚡ Fun fact: igrok v doty 10k
+- ⚡ Fun fact: none
